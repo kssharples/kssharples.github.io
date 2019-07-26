@@ -1,2 +1,0 @@
-# kssharples.github.io
-heynongman
